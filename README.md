@@ -18,3 +18,6 @@
 [main account linked here](https://github.com/jesusluvsjunkies)
 
 everything you need is on my main also just follow it for ease of access ok? ok. i have this account just to advertise the wiki essentially.
+***
+mascot's name is apple of my eye theres not much besides he uses all pronouns
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/1fa3d031-cf37-4913-8e57-09b052b205e0" />
