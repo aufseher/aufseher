@@ -19,5 +19,5 @@
 
 everything you need is on my main also just follow it for ease of access ok? ok. i have this account just to advertise the wiki essentially.
 ***
-mascot's name is apple of my eye theres not much besides he uses all pronouns, is a librarian
+mascot's name is apple of my eye theres not much besides he uses all pronouns and he is a librarian and archivist
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/969d801f-4b96-42b7-b1b1-4961820b7700" />
