@@ -20,3 +20,5 @@
 hi i made this account because sometimes i get bored and i wanna be dressed as the ponytown wiki's mascot and i need a link for my fandom account.
 
 spam follows usually aren't followed back since i rarely use this account. everything you need is on my main account ok? ok
+
+i didn't actually make this account i found it by digging through my emails. 2019 is insane.
