@@ -21,4 +21,4 @@ hi i made this account because sometimes i get bored and i wanna be dressed as t
 
 spam follows usually aren't followed back since i rarely use this account. everything you need is on my main account ok? ok
 
-i didn't actually make this account i found it by digging through my emails. 2019 is insane.
+i didn't actually make this account recently, i found it by digging through my emails. 2019 is insane.
