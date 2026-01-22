@@ -17,8 +17,4 @@
 ***
 [main account linked here](https://github.com/jesusluvsjunkies)
 
-hi i made this account because sometimes i get bored and i wanna be dressed as the ponytown wiki's mascot and i need a link for my fandom account.
-
-spam follows usually aren't followed back since i rarely use this account. everything you need is on my main account ok? ok
-
-i didn't actually make this account recently, i found it by digging through my emails. 2019 is insane.
+everything you need is on my main also just follow it for ease of access ok? ok. i have this account just to advertise the wiki essentially.
