@@ -13,10 +13,3 @@
 </td>
 </table>
 </div>
-
-***
-[main account linked here](https://github.com/jesusluvsjunkies)
-
-everything you need is on my main also just follow it for ease of access ok? ok. i have this account just to advertise the wiki essentially.
-***
-
